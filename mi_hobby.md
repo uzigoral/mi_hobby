@@ -1,4 +1,4 @@
-# Titulo: [Tocar la Guitarra]
+# Titulo: Tocar la Guitarra
 
 **Diversión**:Me gusta ya que con el paso del tiempo empezas a poder tocar las canciones que te gustan, asi tambien te ayuda a comprender un poco mejor la musica en general y conocer nuevos generos.
 
