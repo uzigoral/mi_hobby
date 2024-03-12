@@ -1,6 +1,6 @@
 # Titulo: Tocar la Guitarra
 
-**Diversión**:Me gusta ya que con el paso del tiempo empezas a poder tocar las canciones que te gustan, asi tambien te ayuda a comprender un poco mejor la musica en general y conocer nuevos generos.
+**Diversión**: Me gusta ya que con el paso del tiempo empezas a poder tocar las canciones que te gustan, asi tambien te ayuda a comprender un poco mejor la musica en general y conocer nuevos generos.
 
 **Familia**: Comparto este hobby con mi papa que toca la bateria, gracias a el puedo tocar de vez en cuando con alguna otra banda.
 
